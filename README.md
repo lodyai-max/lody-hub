@@ -17,7 +17,7 @@ With over **25 years** of combined expertise, I bring a rare multidisciplinary e
 ### Current Mission (May 2026 – May 2027)
 Become a rare, high-value **AI-augmented maritime operations professional** while building practical, monetizable tools in:
 - Crew compliance & risk management (with heavy P&I prevention focus)
-- Injury prevention & wellness systems  
+- Injury prevention & wellness systems
 - Operational excellence for manning agencies and shipping companies
 
 ### Core Focus Areas
